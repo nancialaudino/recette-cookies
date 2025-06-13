@@ -12,3 +12,4 @@ Nestlé, quisongeait àarrêter la fabrication de ce chocolat, envoya un représ
 
 La Seconde Guerre mondiale, et le brassage de tousles GI venant de différents États des États-Unis, assurèrent la diffusion de cette recette de Nouvelle Angleterre : les cookies, délicieux, hautement énergétiquessous un faible volume, etsupportant bien le transport verslesthéâtres d'opérations extérieures eurent un énorme succès, et Nestléen bénéficia.
 
+
